@@ -2,5 +2,3 @@
 ayo yang semangat belajarnya
 
 iya iya semangat ini !1!1!
-
-betul betul betul
