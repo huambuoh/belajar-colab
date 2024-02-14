@@ -1,6 +1,3 @@
 # belajar-colab
-ayo yang semangat belajarnya
-
+ayo yang semangat belajarnya<br>
 iya iya semangat ini !1!1!
-
-betul betul betul
